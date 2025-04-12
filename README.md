@@ -7,7 +7,7 @@
       𐂯  ៸៸៸  ℋE  𓈒  iT  ⏜︵  < 3 ℐABE  𐒘𝛠  2𓏏19𓏏25  !!
       ( ♡ ´ ⩊ ') ⠀  PIZZADEBT FANATIC !!11   ╪
            ꉂ   C00LKIDD   FiCTKIN  ‿ ྀི ࿐
-  (  yez  ,  i know the origins of the characterz from 4saken )
+ 
   
 ![tumblr_dd33d81254d9c0c1dd583a70b1e8c874_73907a35_400](https://github.com/user-attachments/assets/62d40f61-dfb7-4d62-9018-c2a4231ee18f)
 
