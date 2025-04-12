@@ -1,3 +1,7 @@
+ ![tumblr_512138e8b54a1a5ed84261859402cbf6_761e088b_400](https://github.com/user-attachments/assets/4f535196-c569-4c64-8cb1-9347d8399cad)
 
-![tumblr_58c0590232b5e0be83b38d9f6a8652f1_77342f88_400](https://github.com/user-attachments/assets/0747eb7c-0507-4ddd-9f18-26b1829fc285)
-i love the broken script sm eheh ^u^  ( i also like forsaken, if you couldnt tell. )
+         𝄞  ︵︵𓂃  ℳAFiOSO  ╱  NULℒ  ᛝ  𓎢𓎟  ◞ ྀི
+      𐂯  ៸៸៸  ℋE  𓈒  iT  ⏜︵  < 3 ℐABE  𐒘𝛠  2𓏏19𓏏25  !!
+      ( ♡ ´ ⩊ ') ⠀  77NOLI  +  PIZZADEBT FANATIC ═╪
+
+    
